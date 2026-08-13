@@ -1,4 +1,4 @@
-## oLÁ
+## oLÁ meu nome é hyguinho
 
  - sou Hygor, e estou cursando [SENAI](https://www.sp.senai.br/unidade/leopoldina/) TDS (Desenvolvimento de Sistemas)
  - Para mais, [ACESSAR](https://www.linkedin.com/in/hygor-eduardo-rodrigues-917599427/)
